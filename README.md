@@ -18,5 +18,5 @@ know what determine your personality: genes and families
 **for-it-self**:  
 Know how you interact with others and yourself, and how to change it
 
-**in and for it-self**  
+**in and for itself**  
 know, improve and maintain your self-esteem
