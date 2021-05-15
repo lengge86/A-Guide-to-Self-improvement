@@ -12,11 +12,11 @@ Self-improvement consists of two parts: reading materials, and exercise.
 
 The guide consists of three parts:
 
-**in-it-self**:   
+**In-it-self**:   
 know what determine your personality: genes and families
 
-**for-it-self**:  
+**For-it-self**:  
 Know how you interact with others and yourself, and how to change it
 
-**in and for itself**  
+**In and for itself**  
 know, improve and maintain your self-esteem
